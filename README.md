@@ -12,7 +12,7 @@
 
 ## 白嫖云优惠码
 
-优惠券:Half price coupon11111
+优惠券:Half price coupon111111
 
 ## 白嫖云价格
 
